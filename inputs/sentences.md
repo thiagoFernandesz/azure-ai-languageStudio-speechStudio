@@ -1,12 +1,9 @@
 # Sentenças
 
-1. The sun is shining brightly in the clear blue sky.
-2. She enjoys listening to music while jogging in the park.
-3. After a long day at work, he likes to relax with a good book.
-4. The children are playing happily in the backyard.
-5. We went hiking in the mountains and enjoyed breathtaking views.
-6. He ordered a pizza for dinner because he didn't feel like cooking.
-7. Tomorrow, we have plans to visit the museum downtown.
-8. The cat stretched lazily before curling up for a nap.
-9. She couldn't decide which dress to wear to the party.
-10. They watched a movie together and shared a big bowl of popcorn.
+1. I bought a size S and it fit perfectly. I found the zipper a little bit difficult to get up & down due to the side rushing. The color and material are beautiful in person. Amazingly comfortable!
+2. Long waits...BUT FOR GOOD REASON. Some awesome Italian food and great vibes. Contoso Bistro always has live music or events going on to keep you entertained. The food is good enough to keep me entertained though!  
+   The Contoso Bistro lasagna is a classic! The outdoor back patio is such a vibe, especially in the summer. Great service as well :) Love this place and will be back for more.
+3. Hello,  
+   My name is Mateo Gomez and I visited Contoso Restaurant with my spouse for our anniversary last Thursday. I had heard wonderful things about your food and service from my neighbors as I lived right down the street from you at 1234 Hollywood Boulevard. After a lovely stroll along the Santa Monica Pier, we decided to go for dinner at Contoso. But when we got to the restaurant, we had to wait for 15 minutes just to get on the waiting list. After an hour of waiting to get seated, we ordered two Surf and turf platters. To our absolute surprise, the food was very cold and dry. The whole experience was just awful, and I expect a refund for our meal and an apology for that day. Please issue me a refund at the earliest and call me on 123-456-7890 for any further questions.
+4. I can describe my experience of this game in two words: "TECHNOLOGY RECHARGED!" #bestdayever
+5. The cafeteria food is getting worse by the day. $15 for a plate of burger and fries does not seem subsidized.
